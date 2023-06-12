@@ -4,7 +4,7 @@
 - 🏡 作品：求星星 ✨
 - 😺 视频：<a href="https://space.bilibili.com/1338670020" target="_blank">B站@Savage-Tian</a>
 - 💬 微信：ShaoTian0310（请备注事由）
-- 🤔 问题：<a href="https://www.zhihu.com/people/Savage-Tian" target="_blank">知乎 @Savage-Tian</a>
+- 🤔 问题：<a href="https://www.zhihu.com/people/deelthink" target="_blank">知乎 @Savage-Tian</a>
 
 ## 今年汇总 ✨
 
