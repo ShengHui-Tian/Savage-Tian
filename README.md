@@ -3,7 +3,7 @@
 - 👨‍💻 全栈攻城狮，区块链、深度学习研究者，网络安全顾问
 - 🏡 作品：求星星 ✨
 - 😺 视频：<a href="https://space.bilibili.com/12890453" target="_blank">B站@Savage-Tian</a>
-- 💬 微信：（请备注事由）
+- 💬 微信：ShaoTian0310（请备注事由）
 - 🤔 问题：<a href="https://www.zhihu.com/people/Savage-Tian" target="_blank">知乎 @Savage-Tian</a>
 
 ## 今年汇总 ✨
